@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @enigmaticpanda
-- 👀 I’m interested in gaming, coding, sleeping, and music
+- 👀 I’m interested in gaming, coding, art, and music
 - 📫 How to reach me - Discord: <3.#5181
 
 <!---
